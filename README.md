@@ -6,6 +6,7 @@
 ![alt text](https://github.com/vaishdesh2001/MyGraphicDesigns/blob/main/contact_page_nirus.png)
 ![alt text](https://github.com/vaishdesh2001/MyGraphicDesigns/blob/main/Thanksgiving%20(1).png)
 ![alt text](https://github.com/vaishdesh2001/MyGraphicDesigns/blob/main/fff.png)
+![alt text](https://github.com/vaishdesh2001/MyGraphicDesigns/blob/main/conclusion.png)
 ![alt text](https://github.com/vaishdesh2001/MyGraphicDesigns/blob/main/fff_sarla.jpg)
 ![alt text](https://github.com/vaishdesh2001/MyGraphicDesigns/blob/main/fyb%20group%20me%20and%20inter%20(2).png)
 ![alt text](https://github.com/vaishdesh2001/MyGraphicDesigns/blob/main/golden%20temple.png)
