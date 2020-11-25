@@ -1,3 +1,4 @@
+![alt text](https://github.com/vaishdesh2001/MyGraphicDesigns/blob/main/linkedin%20banner.png)
 ![alt text](https://github.com/vaishdesh2001/MyGraphicDesigns/blob/main/HoISA%20newsletter.png)
 ![alt text](https://github.com/vaishdesh2001/MyGraphicDesigns/blob/main/My%20Post%20(4).png)
 ![alt text](https://github.com/vaishdesh2001/MyGraphicDesigns/blob/main/My%20Post.png)
@@ -9,7 +10,6 @@
 ![alt text](https://github.com/vaishdesh2001/MyGraphicDesigns/blob/main/golden%20temple.png)
 ![alt text](https://github.com/vaishdesh2001/MyGraphicDesigns/blob/main/independence%20day.png)
 ![alt text](https://github.com/vaishdesh2001/MyGraphicDesigns/blob/main/kickoff_new.png)
-![alt text](https://github.com/vaishdesh2001/MyGraphicDesigns/blob/main/linkedin%20banner.png)
 ![alt text](https://github.com/vaishdesh2001/MyGraphicDesigns/blob/main/merch_ad%20(1).png)
 ![alt text](https://github.com/vaishdesh2001/MyGraphicDesigns/blob/main/order_merch%20Copy.png)
 ![alt text](https://github.com/vaishdesh2001/MyGraphicDesigns/blob/main/raffle.png)
