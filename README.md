@@ -3,6 +3,7 @@
 ![alt text](https://github.com/vaishdesh2001/MyGraphicDesigns/blob/main/dare%20bingo%20insta%20(1).png)
 ![alt text](https://github.com/vaishdesh2001/MyGraphicDesigns/blob/main/HoISA%20newsletter.png)
 ![alt text](https://github.com/vaishdesh2001/MyGraphicDesigns/blob/main/My%20Post.png)
+![alt text](https://github.com/vaishdesh2001/MyGraphicDesigns/blob/main/we%20are%20thankful%20(1).png)
 ![alt text](https://github.com/vaishdesh2001/MyGraphicDesigns/blob/main/contact_page_nirus.png)
 ![alt text](https://github.com/vaishdesh2001/MyGraphicDesigns/blob/main/Thanksgiving%20(1).png)
 ![alt text](https://github.com/vaishdesh2001/MyGraphicDesigns/blob/main/fff.png)
