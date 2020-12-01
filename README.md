@@ -1,4 +1,5 @@
 ![alt text](https://github.com/vaishdesh2001/MyGraphicDesigns/blob/main/linkedin%20banner.png)
+![alt text](https://github.com/vaishdesh2001/MyGraphicDesigns/blob/main/wallpaper%20idea.png)
 ![alt text](https://github.com/vaishdesh2001/MyGraphicDesigns/blob/main/My%20Post%20(4).png)
 ![alt text](https://github.com/vaishdesh2001/MyGraphicDesigns/blob/main/dare%20bingo%20insta%20(1).png)
 ![alt text](https://github.com/vaishdesh2001/MyGraphicDesigns/blob/main/HoISA%20newsletter.png)
