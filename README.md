@@ -1,4 +1,5 @@
 ![alt text](https://github.com/vaishdesh2001/MyGraphicDesigns/blob/main/linkedin%20banner.png)
+![alt text](https://github.com/vaishdesh2001/MyGraphicDesigns/blob/main/Blue%20Pixelated%20Game%20Night%20Invitation.png)
 ![alt text](https://github.com/vaishdesh2001/MyGraphicDesigns/blob/main/wallpaper%20idea.png)
 ![alt text](https://github.com/vaishdesh2001/MyGraphicDesigns/blob/main/suggestions%20graphic.png)
 ![alt text](https://github.com/vaishdesh2001/MyGraphicDesigns/blob/main/vote2%20(1).png)
